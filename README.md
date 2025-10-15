@@ -5,4 +5,6 @@ I loved to be on stage and would also love to return next year - could you do me
 
 You can find all the slides as a PDF, if you have any question, you can contact me via [LinkedIn](https://linkedin.com/in/luisefreese).
 
+Anyone interested in a workshop to get more hands-on?! LMK!
+
 
